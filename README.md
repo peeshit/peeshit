@@ -1,5 +1,5 @@
 WELCOME <img width="736" height="414" alt="9555d59dac6ee716514b986f944245ae" src="https://github.com/user-attachments/assets/a745fdbb-4ebf-498a-881e-59ff3340c600" />
-
+i have horrible social anxiety but i try my best 
 
 <!--
 **peeshit/peeshit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
